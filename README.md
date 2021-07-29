@@ -1,0 +1,2 @@
+# rust-the-game
+ rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD  rust is BAD 
